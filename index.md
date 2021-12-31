@@ -1,37 +1,20 @@
-## Welcome to GitHub Pages
+<h1>How To Ship Sperm</h1>
 
-You can use the [editor on GitHub](https://github.com/Tobanggado/how-to-ship-sperm/edit/gh-pages/index.md) to maintain and preview the content for your website in Markdown files.
+<div id="toc" style="background: #f9f9f9;border: 1px solid #aaa;display: table;margin-bottom: 1em;padding: 1em;width: 350px;"><p class="toctitle" style="font-weight: 700;text-align: center;">Content</p><ul class="toc_list"><li><a href="#toc-0">Single Extender Donor Kit</a></li><li><a href="#toc-1">Sperm Freezing Success Charges</a></li><li><a href="#toc-2">Further Pointers In Dealing With Semen</a></li><li><a href="#toc-3">Sperm Viability After Cryopreservation</a></li><li><a href="#toc-4">Ordering Your Specimen [newline]shipping Your Specimen</a></li><li><a href="#toc-5">For Healthcare Professionals</a></li><li><a href="#toc-6">Further Single Tyb Don't Order And Not Utilizing A Package, Order Will Cancel</a></li></ul></div>
+<p>Known donation is permitted and it's not uncommon for household or friends to donate to a recipient couple. Considerable change has occurred throughout the artificial insemination trade. The most evident change was the transition to the straw because the predominant semen package deal. More models may be stored in bulk at the AI group and in farm semen tanks. The straw system permits extra complete delivery of semen throughout insemination. Probably most necessary, the straw permits more uniform management of the freezing and thawing course of which has led to improved sperm cell recovery.</p>
+<div itemScope itemProp="mainEntity" itemType="https://schema.org/Question">  <div itemProp="name"><h2>How lengthy will sperm maintain in the fridge?</h2></div>  <div itemScope itemProp="acceptedAnswer" itemType="https://schema.org/Answer">      <div itemProp="text"><p>Some spermatozoa could nonetheless penetrate after 17 days. Room-temperature-stored spermatozoa had been nonetheless capable of fertilize human oocytes 5 days after preparation. With storage in a refrigerator motility declined rapidly, and few sperm have been motile after 14 days.</p></div>  </div></div>
+<p>A sperm financial institution can recruit donors by advertising, often in schools, in native newspapers, and in addition on the internet. You wish to retailer frozen sperm to preserve your future fertility after medical remedies for most cancers or other illnesses. Donor sperm can be used by people and couples who're experiencing infertility as a outcome of male infertility. Single ladies, same sex couples, and sexually intimate couples withmale issue infertilityare those that most frequently use a sperm donor. If your sperm donation is from a identified donor, please have the cryopreservation facility freeze the pattern and ship it to the address above. The facility may even need to include a accomplished donor eligibility determination for FDA functions.</p>
+<h2 id="toc-0">Single Extender Donor Equipment</h2>
+<p>The semen analysis will be completed roughly one hour after the specimen arrives on the laboratory. We evaluate the ejaculate quantity, seminal fluid consistency, sperm rely, and sperm motility. Following the evaluation, the semen is diluted with a cryoprotectant to protect the sperm throughout cryopreservation and the specimen is transferred to cryovials. The sperm are then frozen in a managed fee freezer and saved in a liquid nitrogen tank at -196o C.</p>
+<div itemScope itemProp="mainEntity" itemType="https://schema.org/Question">  <div itemProp="name"><h2>Where can I store my sperm?</h2></div>  <div itemScope itemProp="acceptedAnswer" itemType="https://schema.org/Answer">      <div itemProp="text"><p>“The best place to freeze sperm is at a sperm bank or fertility clinic,” says Dr. Juan Alvarez, board certified reproductive endocrinologist with Fertility Centers of Illinois. This is as a end result of, he explains, “sperm ought to be processed within 1 to 2 hours of amassing a sample.”</p></div>  </div></div>
+<p>Be positive to include the doctor's signature and notarization of the recipient's and the recipient's companion's signature. However, a doctor signature isn't required if you are a longtime patient of OHSU fertility. Talk along with your healthcare supplier to help advise you on which vial sort are beneficial in your therapy plan. However, these laws do allow for individual clinics in Europe to approve importation from abroad. For instance, we have been permitted and ship frequently to a clinic in Ireland.</p>
+<h3 id="toc-1">Sperm Freezing Success Rates</h3>
+<p>You will then stay on the exam desk for an additional minutes. The course of isn't painful, however some ladies could experience gentle cramping. Fairfax Cryobank offers essentially the most complete medical profiles, giving us confidence in a wholesome match. In addition the private profile, audio disc of the donor's voice and the photograph of the donor as a baby offered us a human touch that made a distinction I can not adequately clarify. This unique facet of Fairfax's service offered us a wonderful glimpse of who the donor is, his pursuits and values. The opportunity to gauge these qualities was equally necessary to us as figuring out the donor's physical attributes.</p>
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
-
-### Markdown
-
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
-
-```markdown
-Syntax highlighted code block
-
-# Header 1
-## Header 2
-### Header 3
-
-- Bulleted
-- List
-
-1. Numbered
-2. List
-
-**Bold** and _Italic_ and `Code` text
-
-[Link](url) and ![Image](src)
-```
-
-For more details see [Basic writing and formatting syntax](https://docs.github.com/en/github/writing-on-github/getting-started-with-writing-and-formatting-on-github/basic-writing-and-formatting-syntax).
-
-### Jekyll Themes
-
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/Tobanggado/how-to-ship-sperm/settings/pages). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
-
-### Support or Contact
-
-Having trouble with Pages? Check out our [documentation](https://docs.github.com/categories/github-pages-basics/) or [contact support](https://support.github.com/contact) and we’ll help you sort it out.
+<p>The extra vials may be saved at the commercial cryobank and transported to Columbia Fertility as needed. In Vitro Fertilization and Intracytoplasmic Sperm Injection . In vitro fertilization with Intracytoplasmic Sperm Injection can be utilized as a primary remedy for some sufferers .</p>
+<h3 id="toc-2">Extra Pointers In Dealing With Semen</h3>
+<p>Most generally the documentation exhibits that the sperm donor has no rights to any child born from his sperm. He additionally has no monetary obligations for any children conceived utilizing his donated sperm. This documentation is put in place to protect one of the best pursuits of both parties. Legal documentation is already in place when selecting an anonymous sperm donor via a certified sperm bank. International Cryogenics has services obtainable for collection, freezing, long and brief term storage of sperm samples. They could also be having most cancers therapies that may end in an involuntary lack of fertility as a result of chemotherapy, radiation therapies, or a surgical procedure which will render them sterile or sub-fertile.</p>
+<div style='text-align:center'><iframe width='563' height='315' src='https://www.youtube.com/embed/UsilRz0wp6g' frameborder='0' alt='how to ship sperm' allowfullscreen></iframe></div>
+<p>All prospective sperm donors bear a bodily examination by a physician. Donors are tested initially and/or periodically for gonorrhea, syphilis, hepatitis B, hepatitis C virus , HTLV-1, cytomegalovirus, chlamydia, and HIV, sickle cell provider status , Tay-Sachs provider status , and Thalassemia . The real secret to delivery sperm is the usage of TYB, or Test Yolk Buffer. TYB is a sperm extender that feeds the sperm a nutrient rich egg yolk that's really an extraction from hen eggs. Normally, excretions within the lady's body throughout ovulation feeds the sperm an identical yolk-like substance, serving to them survive and obtain the aim of fertilization.</p>
+<h2 id="toc-3">Sperm Viability After Cryopreservation</h2>
+<p>Using the nice forceps to hold the oviduct in place, and then use a 29-gauge needle to tear open the ampulla, which is the swollen and translucent segment of the oviducts. The cumulus mass, which often incorporates a number of eggs surrounded by follicular cells, will extrude spontaneously into the media. Cumulus plenty from up to five mice may be collected into the same dish, and each oviduct ought to be discarded immediate after processing. On the day earlier than the scheduled IVF process, 46–48 h after the PMSG injection, inject (i.p.) the same females with 5 IU of human chorionic gonadotropin (hCG, Sigma # C-1063) dissolved in 0.1 ml physiological saline.</p>
